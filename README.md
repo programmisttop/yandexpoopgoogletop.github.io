@@ -1,1 +1,0 @@
-# yandexpoopgoogletop.github.io
